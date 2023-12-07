@@ -3,6 +3,7 @@
 - 🌱 I’m currently study at Kamnoetviddya Science Academy, Rayong, Thailand.
 - 💞️ I’m looking to collaborate on any projects!!
 - 📫 How to reach me: My IG account is winter.__.kor nice to meet you!
+- By the way this is my new account since my old account get stuck somehow so just left it haha.
 
 <!---
 winterkor/winterkor is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
