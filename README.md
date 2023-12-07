@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @winterkor
+- 👋 Hi, I’m @winterkor. You can call me win or winter.
 - 👀 I’m interested in computer science
 - 🌱 I’m currently study at Kamnoetviddya Science Academy, Rayong, Thailand.
 - 💞️ I’m looking to collaborate on any projects!!
