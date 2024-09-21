@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @winterkor. You can call me win or winter.
 - 👀 I’m interested in computer science
-- 🌱 I currently graduated from Kamnoetviddya Science Academy, Rayong, Thailand.
+- 🌱 I graduated from Kamnoetviddya Science Academy, Rayong, Thailand. I currently study in Singapore University of Technology and Design, Singapore.
 - 💞️ I’m looking to collaborate on any projects!!
 - 📫 How to reach me: My IG account is winter.__.kor nice to meet you!
 - By the way this is my new account since my old account get stuck somehow so just left it haha.
